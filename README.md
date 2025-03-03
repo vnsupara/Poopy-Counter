@@ -1,0 +1,1 @@
+Click on the day of the week when you are on the toilet. Once your feces has left your body, click the + button to record an instance of fecal disposition. Click the - button if you made a mistake. Click Reset once it is done to signify a new week. Happy Pooping!
